@@ -4,7 +4,7 @@
 ------
 :heart: :point_right: 【最新地址】 ：[https://shenmixd.cc/shenmi](https://shenmixd.cc/shenmi)
 ------
-:heart: :point_right: 【永久地址】 ：[https://籩耕d.shenmixd.cc//呐月m3](https://籩耕d.shenmixd.cc//呐月m3)
+:heart: :point_right: 【永久地址】 ：[https://籩耕d.shenmixd.cc/呐月m3](https://籩耕d.shenmixd.cc/呐月m3)
 ------
 :sparkles:重要提醒:sparkles:收藏本页面，避免迷路！
 ==
