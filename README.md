@@ -1,6 +1,6 @@
 :sparkles::sparkles:神秘岛屿 最新地址发布页:sparkles::sparkles:
 ==
-:heart: :point_right: 【永久地址】 ：[https://xd.smxd.xyz/shenmi](https://xd.smxd.xyz/shenmi)
+:heart: :point_right: 【最新地址】 ：[https://xd.smxd.xyz/shenmi](https://xd.smxd.xyz/shenmi)
 ------
 :heart: :point_right: 【最新地址】 ：[https://shenmixd.cc/shenmi](https://shenmixd.cc/shenmi)
 ------
